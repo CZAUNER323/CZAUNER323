@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CZAUNER323
+- 👀 I’m interested in ... MUSIC
+- 🌱 I’m currently learning ... IT
